@@ -9,3 +9,5 @@ Meu nome é pedro
  ### voce pode entrar em contato cmg 📧
 
  00001135440165sp@al.educacao.sp.gov.br
+
+![](https://media.tenor.com/QkMZcvGwrT8AAAAM/b-ts.gif)
